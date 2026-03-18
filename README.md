@@ -2,6 +2,8 @@
 
 Check out my website: [yassin.app](https://yassin.app/)
 
+Currently working on the next generation of Mercedes Tuning
+
 Email: solimanyassin@gmail.com
 
 <!--
