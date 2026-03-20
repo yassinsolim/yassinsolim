@@ -2,7 +2,7 @@
 
 Check out my website: [yassin.app](https://yassin.app/)
 
-Currently working on STERN
+Currently working on [STERN](https://www.sterntuning.com/)
 
 Email: solimanyassin@gmail.com
 
