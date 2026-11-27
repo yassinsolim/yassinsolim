@@ -2,6 +2,8 @@
 
 Check out my website: [yassin.app](https://yassin.app/)
 
+Join my Discord: [discord.gg/bTKn3Su3sp](https://discord.gg/bTKn3Su3sp)
+
 <!--
 **yassinsolim/yassinsolim** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
